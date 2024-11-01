@@ -1,0 +1,1 @@
+The biggest challenge, at least for me personally, when rock climbing is remembering to breathe. Once you nail that, you can begin to remember how to block out the people trying to rip you off the wall.
